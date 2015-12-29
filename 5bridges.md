@@ -14,7 +14,9 @@ It was difficult for me to limit it to just five bridges, so I split the list in
 2. Fishing Bridge - Yellowstone National Park, WY
     - This bridge was historically used as a place from which one would fish during the spawning season on Yellowstone Lake. There are photographs of men lined up shoulder to shoulder, each with a fishing line in hand.
 3. Astoria-Megler - Astoria, OR
-    - 
+    - Following the end of my sophomore year at Southern Utah University, I had a week before my summer job began. I was staying at my uncle's house in Pocatello, and decided to go for a drive. It first began as a drive through Arbon Valley, but I really wasn't ready to head back when I reached the interstate, so I thought I'd drive to Twin Falls (incidentally crossing two other bridges on this list). Still not feeling like heading back I drove to Boise, at which point I thought "Oregon is just a bit further..." Upon reaching Oregon, I decided, I'm this far, I might as well drive to Portland... (nearly 400 miles away). I spent the night in Baker City, and continued my drive westward. Along the way, I passed Multnomah Falls, which features later in this list. Reaching Portland, I decided to go to the coast, not realizing how far inland Portland actually is. I drove to Seaside, and witnessed the Pacific Ocean for the first time. I then drove north toward Astoria.
+    - After visiting the Astoria tower, and seeing getting a spectacular view from the top, I drove to the bridge, a magnificent structure with a steep approach on the south side, and then a long, flat surface continuing to the Washington side of the river.
+    - I guess the significance of this bridge for me is the liberating, introspective drive that I took to get to it, but it's still an awesome sight to see.
 4. Yellowstone River Bridge (I-94 Frontage Road) - Fallon, MT
     -
 5. Hansen Bridge - Twin Falls, ID
