@@ -18,7 +18,7 @@ It was difficult for me to limit it to just five bridges, so I split the list in
     - After visiting the Astoria tower, and seeing getting a spectacular view from the top, I drove to the bridge, a magnificent structure with a steep approach on the south side, and then a long, flat surface continuing to the Washington side of the river.
     - I guess the significance of this bridge for me is the liberating, introspective drive that I took to get to it, but it's still an awesome sight to see.
 4. Yellowstone River Bridge (I-94 Frontage Road) - Fallon, MT
-    -
+    - I first saw this bridge on my way to Williston, ND one summer. On my return trip, I made a point of going to drive over it. Truss bridges have always been really cool to me because of the linear shapes that they feature. and the cool patterns their shadows cast.
 5. Hansen Bridge - Twin Falls, ID
     -
 
