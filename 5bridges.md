@@ -20,7 +20,7 @@ It was difficult for me to limit it to just five bridges, so I split the list in
 4. Yellowstone River Bridge (I-94 Frontage Road) - Fallon, MT
     - I first saw this bridge on my way to Williston, ND one summer. On my return trip, I made a point of going to drive over it. Truss bridges have always been really cool to me because of the linear shapes that they feature. and the cool patterns their shadows cast.
 5. Hansen Bridge - Twin Falls, ID
-    -
+    - Just up the river from the Perrine Bridge, I was unaware of this bridge for much of my life, even though nearly every time I'd travel from Pocatello to Boise, we'd stop at the truck stop less than a mile away. I stopped at this bridge on my Astoria road trip as well.
 
 
 1. Historic Old Washington Street Pedestrian Bridge - Indianapolis, IN
