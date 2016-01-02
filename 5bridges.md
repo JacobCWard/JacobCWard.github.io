@@ -28,4 +28,6 @@ It was difficult for me to limit it to just five bridges, so I split the list in
 2. Benson Footbridge - Multnomah Falls, OR
     -
 3. Arlington Memorial Bridge - Washington, DC
-    -
+    - During my junior year of high school, I had the opportunity to attend the Business Professionals of America National Leadership Conference. As my advisor and I were the only members of my chapter in attendance, we had plenty of time to visit the numerous sites in our nation's capital.
+    - One evening we took the train to the Pentagon and visited the 9/11 memorial there. After visiting that humbling site, we took the train to the hallowed ground of Arlington National Cemetery. Due to the lateness of the hour of our visit, we weren't able to enter the cemetery. However, because of our ample site-seeing time, we paid a visit the next day, again taking the train.
+    - After visiting the cemetery, we took a leisurely stroll across the bridge to the Lincoln Memorial. It was a beautiful day, and a spectacular bridge to cross.
