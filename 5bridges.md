@@ -24,7 +24,7 @@ It was difficult for me to limit it to just five bridges, so I split the list in
 
 
 1. Historic Old Washington Street Pedestrian Bridge - Indianapolis, IN
-    -
+    - I lived and worked on the campus of IUPUI during the summer of 2015 and had large amounts of free time in the evenings on the weekends. Just a short walk from campus, this bridge is a lovely place to just sit and watch the White River and view the Indianapolis skyline. Indianapolis is definitely a place I would consider living, despite its lack of mountains. (And that is really saying something since I LOVE mountains.)
 2. Benson Footbridge - Multnomah Falls, OR
     -
 3. Arlington Memorial Bridge - Washington, DC
