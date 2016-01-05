@@ -1,6 +1,7 @@
 ---
 title: My Favorite Bridges
 comment: Work in Progress
+category: favorites
 ---
 
 # My Favorite Bridges
