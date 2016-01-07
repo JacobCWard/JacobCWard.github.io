@@ -36,9 +36,12 @@ It was difficult for me to limit it to just five bridges, so I split the list in
 
 1. Historic Old Washington Street Pedestrian Bridge - Indianapolis, IN
     - I lived and worked on the campus of IUPUI during the summer of 2015 and had large amounts of free time in the evenings on the weekends. Just a short walk from campus, this bridge is a lovely place to just sit and watch the White River and view the Indianapolis skyline. Indianapolis is definitely a place I would consider living, despite its lack of mountains. (And that is really saying something since I LOVE mountains.)
+    - [pictures from Indianapolis]
 2. Benson Footbridge - Multnomah Falls, OR
     - The Benson Footbridge crosses above the lower falls of Multnomah Falls. I hiked this trail in the spring of 2009 when my high school FIRST robotics team 'Haywire' was on its way to the Portland Regional. (I would have hiked the trail again on my Astoria trip, but it was being repaired after sustaining damage from a falling rock in January of 2014.) While the magnificent falls are more of the view than the bridge itself, the significance of a bridge lies just as much in what it crosses as it does in and of itself.
+    - [pics from Astoria trip]
 3. Arlington Memorial Bridge - Washington, DC
     - During my junior year of high school, I had the opportunity to attend the Business Professionals of America National Leadership Conference. As my advisor and I were the only members of my chapter in attendance, we had plenty of time to visit the numerous sites in our nation's capital.
     - One evening we took the train to the Pentagon and visited the 9/11 memorial there. After visiting that humbling site, we took the train to the hallowed ground of Arlington National Cemetery. Due to the lateness of the hour of our visit, we weren't able to enter the cemetery. However, because of our ample site-seeing time, we paid a visit the next day, again taking the train.
     - After visiting the cemetery, we took a leisurely stroll across the bridge to the Lincoln Memorial. It was a beautiful day, and a spectacular bridge to cross.
+    - [do i have pics from this?]
