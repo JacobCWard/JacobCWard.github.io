@@ -30,21 +30,21 @@ ShockTob | idk. mostly meh.
 Buick | we get it your cars aren't just for old people.
 Advil | badass pain killer
 Jason Bourne | might see
-DollarShaveClub | Good for them doing well enought to advertise during the super bowl
+DollarShaveClub | Good for them doing well enough to advertise during the super bowl
 Acura NSX | meh. it's a car
 RocketMortgage | Seems dangerous / Ill advised. Is from Quicken, so... I guess maybe a little better. Interesting 'old money'?
 Bud Light Party |
 Skittles - Steven Tyler |
 CBS | Oh you are cool - I guess.
 TMNT |
-T-Mobile - Steve HArvey | Loved it. Owning it. Laughed.
+T-Mobile - Steve Harvey | Loved it. Owning it. Laughed.
 Hyundai Elantra? | ?
-OICisDifferent.com | It was a drug commercial, but not for a specific one? New approach from Big Pharma? Was paid for my AstraZeneca
+OICisDifferent.com | It was a drug commercial, but not for a specific one? New approach from Big Pharma? Was paid for by AstraZeneca
 Persil | meh.
 The Good Wife | would watch if it was available and wasn't a 7 season barrier
 CokeMini | Brand integration - Avengers
 WeatherTech | 'Merica
-Independence Day - Resurgance | COOL
+Independence Day - Resurgence | COOL
 Prius | attempting to change schema, cool
 Criminal Minds Beyond Borders |
 CBS/CBS/CBS/CBS | You've got shows
@@ -76,16 +76,16 @@ TimeWarner | twc.com/onholdhits Owning it. We're sorry
 Marines |
 Red Robin | Why am I seeing this again?
 Doritos - Dogs |
-Mini Clubman |
+Mini Clubman | I had some thoughts on this one, but can't remember
 TurboTax | It's free... Except it's not really... odd
-Pokemon |
+Pokemon | meh.
 Madam Secretary | I like this show.
 Xifaxan | weird commercial. Why must we have the drug commercials
 LG | pretty TV
 X-Men Apocalypse |
-DeathWishCoffee QuickBooks |
+DeathWishCoffee QuickBooks | thought it was cool they advertised a small business
 Butterfinger |
-Showtime |
+Showtime | meh.
 Verizon | meh...
 Wix.com | Kung Fu Panda love the reference to other commercials
 Heinz | CUTE PUPPIES
@@ -118,3 +118,5 @@ Marines |
 Michelob Ultra - Exhale | Weird
 Prius - Part II |
 Droid Turbo 2 Verizon | Kutcher... meh.
+
+A lot of them played off of existing celebrities instead of creating new characters.
