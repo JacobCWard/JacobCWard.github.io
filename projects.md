@@ -10,5 +10,7 @@
 * COSE Leadership Board
     * FIRST Lego League Regional
     * FIRST Tech Challenge Regional Qualifier
+    * FIRST Tech Challenge Utah State Championship
+    * Science Olympiad
 * University College Web Developer
 * ELLI Committee Technical Stuff
