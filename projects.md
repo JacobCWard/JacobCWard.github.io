@@ -9,8 +9,11 @@
     * Marketing (minor)
 * COSE Leadership Board
     * FIRST Lego League Regional
+        * 15 hours
     * FIRST Tech Challenge Regional Qualifier
+        * 15 hours
     * FIRST Tech Challenge Utah State Championship
+        * 20 hours
     * Science Olympiad
 * University College Web Developer
 * ELLI Committee Technical Stuff
