@@ -14,6 +14,7 @@
         * 15 hours
     * FIRST Tech Challenge Utah State Championship
         * 20 hours
+    * SUU Engineering Fair/Tech Expo
     * Science Olympiad
 * University College Web Developer
 * ELLI Committee Technical Stuff
