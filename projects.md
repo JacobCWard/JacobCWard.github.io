@@ -16,6 +16,7 @@
         * 20 hours
     * SUU Engineering Fair/Tech Expo
     * SUU Leadership Weekend
+        * 15 hours
     * Science Olympiad
 * University College Web Developer
 * ELLI Committee Technical Stuff
