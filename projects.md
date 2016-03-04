@@ -1,6 +1,8 @@
 # Things I Do
 
 * Festival of Excellence
+    * Student Director
+    * Web Developer
 * SUUSA Senate
     * $4,000 allocated for COSE students for travel and research.
 * 18 Credit Hours
