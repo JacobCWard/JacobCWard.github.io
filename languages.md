@@ -11,3 +11,4 @@ These are some computer languages that I know/have worked with.
 * Markdown
 * XML
 * JSON
+* Python
