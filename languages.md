@@ -12,3 +12,4 @@ These are some computer languages that I know/have worked with.
 * XML
 * JSON
 * Python
+* MySQL
