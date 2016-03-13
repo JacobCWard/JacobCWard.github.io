@@ -13,3 +13,4 @@ These are some computer languages that I know/have worked with.
 * JSON
 * Python
 * MySQL
+* Regular Expressions
